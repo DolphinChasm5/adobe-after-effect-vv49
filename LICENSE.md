@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe After Effects for PC | Adobe After Effects for Windows with premium Adobe After Effects for PC | Adobe After Effects for Windows Script | rotoscoping +
 
 
 
